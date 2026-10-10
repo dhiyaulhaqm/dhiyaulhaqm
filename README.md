@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dhiyaulhaqm and you can call me Dhiya'
+- 👋 Hi, I’m the ninth letter of alphabet'
 - ⚡ Fun fact: Suka jalan-jalan sambil cari makanan enak 👀
 
 <!---
